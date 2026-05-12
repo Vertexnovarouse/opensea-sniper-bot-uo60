@@ -1,4 +1,4 @@
-# 
+# Get the ultimate opensea sniper bot with vip opensea sniper bot | price-impact-analysis + stop-loss. Featuring price-impact-analysis and stop-loss, it's the best choice for
 
 
 
